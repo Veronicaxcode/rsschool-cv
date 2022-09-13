@@ -46,7 +46,7 @@ Dedicated Technical Writer with 10+ years of experience in developing and mainta
 - Proofreading documents created by other authors
 - Collecting and consolidating information required to produce documents
 
-### 
+### Softeq Development
 
 **Role:** Technical Writer
 
